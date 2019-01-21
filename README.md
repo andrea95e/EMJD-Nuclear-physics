@@ -4,3 +4,4 @@ I am modifying it
 hfkjdshf
 some junk
 Hei Kristina, mange takk.
+Ok Kristi 
